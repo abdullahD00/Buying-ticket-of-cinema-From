@@ -1,0 +1,1 @@
+# Buying-ticket-of-cinema-From
